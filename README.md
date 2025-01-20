@@ -42,3 +42,6 @@ Practice skills learned in training for low-level and high-level audio signal pr
 -	Sperm whale echolocation clicks (2018) recorded in Dominica uploaded by Susan Bird from [Sperm Whales | Dominica](https://spermwhalesdominica.com/) and available on [YouTube](https://www.youtube.com/watch?v=g_jijaidSbo)
 -	Sperm whale codas 1+1+3 (2020) recorded in Dominica by Dominica Sperm Whale Project available on [SoundCloud](https://soundcloud.com/user-152468598/1-1-3-exchange-2-whales)
 -	Elephant rumbles recorded in Kenya, Cadenced-Rumble in context of Movement Space & Leadership, available on [ElephantVoices ](https://www.elephantvoices.org/elephant-ethogram/search-portal/behavior?id=32)
+- 3-year old Barron Cheng talks then plays piano with orchestra in Hong Kong (2023) uploaded by Shirley Lo to [YouTube](https://www.youtube.com/watch?v=Uv-tmq_y5xc)
+- New York City Noise (2019) uploaded by Nomadic Ambiance to [YouTube](https://www.youtube.com/watch?v=YF3pj_3mdMc)
+
